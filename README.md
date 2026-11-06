@@ -1,23 +1,23 @@
-Professional Gardening Services in West Berkshire
+# Professional Gardening Services in West Berkshire
 
-Knowledgeable, reliable garden care from an RHS-qualified gardener.
+## Knowledgeable, reliable garden care from an RHS-qualified gardener.
 
-Whether you need regular garden maintenance, seasonal tidy-ups, pruning, or help bringing a neglected garden back to life, I provide practical, professional gardening services with a strong understanding of plants and horticulture.
+Whether you need regular garden maintenance, seasonal tidy-ups, pruning, or help bringing a neglected garden back to life, I provide practical, professional gardening services with a strong understanding of plants and horticulture.<br/>
 
-As a holder of the RHS Level 2 Certificate in the Principles of Plant Growth and Development (Plant Science) and the RHS Level 2 Certificate in Practical Horticulture, I combine horticultural knowledge with hands-on experience to help gardens look their best throughout the year.
+As a holder of the RHS Level 2 Certificate in the Principles of Plant Growth and Development (Plant Science) and the RHS Level 2 Certificate in Practical Horticulture, I combine horticultural knowledge with hands-on experience to help gardens look their best throughout the year.<br/>
 
-Serving Newbury, Thatcham, Hungerford, Kingsclere, Burghclere and surrounding villages across West Berkshire and North Hampshire.
+Serving Newbury, Thatcham, Hungerford, Kingsclere, Burghclere and surrounding villages across West Berkshire and North Hampshire.<br/>
 
-Free initial consultation and quotation.
+Free initial consultation and quotation.<br/>
 
-Lucia Andreucetti 
-Email: lucia.andreucetti@outlook.com
-Mobile: 07747 708742
+Lucia Andreucetti <br/>
+Email: lucia.andreucetti@outlook.com<br/>
+Mobile: 07747 708742<br/>
 
-Gardening Services
-Garden Maintenance
+## Gardening Services
+### Garden Maintenance
 
-Regular visits to keep your garden healthy, tidy and enjoyable throughout the seasons.
+Regular visits to keep your garden healthy, tidy and enjoyable throughout the seasons.<br/>
 
 Pruning and Plant Care
 
