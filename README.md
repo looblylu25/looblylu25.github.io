@@ -10,9 +10,9 @@ Serving Newbury, Thatcham, Hungerford, Kingsclere, Burghclere and surrounding vi
 
 Free initial consultation and quotation.  
 
-Lucia Andreucetti <br/>
-Email: lucia.andreucetti@outlook.com<br/>
-Mobile: 07747 708742<br/>
+Lucia Andreucetti  
+Email: lucia.andreucetti@outlook.com  
+Mobile: 07747 708742  
 
 ## Gardening Services
 ### Garden Maintenance
